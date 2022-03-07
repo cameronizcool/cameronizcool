@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cameronizcool
-- 👀 I’m interested in women cuz im gay
+- 👀 I’m interested in nothing
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on tbh i dont know l o l
 - 📫 How to reach me cecilia.cora115@gmail.com
